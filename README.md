@@ -1,7 +1,7 @@
 ```
 the chapters i did the homework for:
 
-1 (sent a long time ago)
+1 (sent a long time ago by email)
 2
 3
 4
